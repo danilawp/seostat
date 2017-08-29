@@ -1,0 +1,2 @@
+# seostat
+for seo gasdjets
